@@ -1,0 +1,6 @@
+# 金属方大炭素/汽车众筹/影视房地产投资平台/理财/机器人挂机自动分红台湾繁体字运营版
+
+源码优势：修复版本，页面美观大方，网上没有雷同，新增自动分红功能解放双手，源码流畅无bug，短信和支付都对接好的 （也有去短信版本）还提供台湾繁体字版本<br>源码包维护升级，有带积分商城的、去除短信验证的版本，请擦亮眼睛，别贪小便宜<br>example.com，没演示的或者演示无法打开的联系客服询问完在下单。 <br>example.com，客服会配合你，请确保源码演示站是是你需要的那种，买了之后演示站之外的问题不予退款。 <br>example.com、APP打包分发下载等等一条龙服务，具体要求请与客服联系另外收费。<br>前台：http://example.com/mobile 帐号：13888888888 密码：123456<br>后台：http://example.com/mobile/chuhzg19tvgabxm/example.com  帐号：admin密码：123456<br>自动分红页面一直挂着：http://example.com/mobile/example.com?s=/Handle/jiesuan<br>本店其他两套投资众筹类有兴趣也可以看一下：<br>https://example.com/code/example.com<br>https://example.com/code/example.com<br>客服技术QQ：1261653878<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/qECSs" style="color: red;">https://mega-file.org/qECSs</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
